@@ -1,157 +1,250 @@
 # Hello-world
 
 
-Yubistyle Mogu: its such a boring game
+09/12/2016
+[12:41AM] Kingdomoftharks: who the fk are u
 
-Dunc4n left the room.
+[12:41AM] spritzermixer: The guy that just destroyed your sorry ass in after game chat
 
-rofologist: shacos a prick>:(
+[12:42AM] Kingdomoftharks: oh the guy that got fked and idint want wast my time with your sorry ass
 
-Kingdomoftharks RlOTS: BECUZE THE PLEPLE U PLAY AGAINST ARE DUMB
+[12:42AM] spritzermixer: Well you just spend 10 odd minutes trying to shut me down soooooo....
 
-DaKoTa11 left the room.
+you kinda did
 
-spritzermixer ~–~–~: ZED
+nothing else to say or just typing at the slowest speed you can to make sure you spell everything correctly this time?
 
-spritzermixer ~–~–~: HOLY
+[12:47AM] : helooooooooo?
 
-spritzermixer ~–~–~: SHIT
+can't handle the heat???
 
-spritzermixer ~–~–~: IF YOU WANNA TAKE IT SERIOUS
+yoohoooo
 
-Kingdomoftharks RlOTS: THEY WORS THEN FKIN BOTS
+how are youuuu
 
-Hayhawk joined the room.
+:D
 
-spritzermixer ~–~–~: PLAY FUCKING RANKED
+ani bodi der?
 
-Kingdomoftharks RlOTS: get fked u noob
+stop messaging my friends and pay attention to me :(
 
-Hayhawk left the room.
+I WANT LIFE ADVICE TOO
 
-spritzermixer ~–~–~: FUck you scum
+why are you ignoring meeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
 
-Kingdomoftharks RlOTS: we play it for a reason
+[12:54AM] Kingdomoftharks: are u bored
 
-spritzermixer ~–~–~: learn to enjoy life
+[12:54AM] spritzermixer: yeah pretty much, give me more things to give you shit about
 
-spritzermixer ~–~–~: holy shit
+dont worry you dont have to try hard all you have to do is type and ill be able to own you
 
-Yubistyle left the room.
+lay it on me bb
 
-Kingdomoftharks RlOTS: learn to fk off
+no? no more? :/
 
-spritzermixer ~–~–~: make me
+[12:57AM] Kingdomoftharks: no time wasters, im bullying your sknny freind
 
-rofologist: you mad bro?
+[12:57AM] spritzermixer: Bullying? 
 
-NetflixNChillaoi left the room.
+[12:57AM] Kingdomoftharks: yes 
 
-spritzermixer ~–~–~: dont make me tell my mummy on you
+[12:57AM] spritzermixer: bro hes pissing himself laughing at how unconceivably stupid you are
 
-Kingdomoftharks RlOTS: i wouldve if swar u in real life
+[12:57AM] Kingdomoftharks: he probs crying now
 
-Kingdomoftharks RlOTS: u big dickhead
+[12:57AM] spritzermixer: riiiiight
 
-spritzermixer ~–~–~: bro youre probably a 20 something fatass neckbeard
+of laughter? yes
 
-rofologist: wow big words
+[12:58AM] Kingdomoftharks: no one knows how we all look like in real world
 
-spritzermixer ~–~–~: Get a lyf ples
+u r just stting behind your pc and talking shit to me
 
-rofologist: you must be 13
+[12:59AM] spritzermixer: except for people who are friends? i guess you wouldnt know about the idea of friendship yet as your mum hasnt 
+let you out of the basement for 13 years :/ should argue that man i really believe you
 
-spritzermixer ~–~–~: YOu fucking heretic
+should go outside and get light
 
-spritzermixer ~–~–~: BLAM
+[12:59AM] Kingdomoftharks: yah u probs have already experinced that
 
-Kingdomoftharks RlOTS: i lready ahve life
+lol
 
-Kingdomoftharks RlOTS: u fking scrab
+[1:00AM] spritzermixer: Wellll ... yes i have experienced friends and being outside, its really an amazing thing
 
-rofologist: a bad one by the sounds of it?
+should try it sometime
 
-spritzermixer ~–~–~: but not a highschool education right?
+[1:00AM] Kingdomoftharks: i never heard about stting at home all day but from u
 
-spritzermixer ~–~–~: that spelling is horrible :/
+haha
 
-rofologist: XD
+[1:01AM] spritzermixer: but i never mentioned anything about me stiitng at home all day? your mother must be ashameed of you, WAIT I 
+KNOW
 
-rofologist: BUUUURRRRNNNNN!!!!!
+ARE YOU THE HUNCHBACK OF NOTRE-DAME
 
-spritzermixer ~–~–~: Ice ice baby
+would explain alot
 
-Kingdomoftharks RlOTS: to to bed kid
+such as not being allowed outside 
 
-spritzermixer ~–~–~: dun dun  dun  dundundundun
+i would be disgusted if i had to raise it too
 
-Kingdomoftharks RlOTS: go
+[1:02AM] Kingdomoftharks: it explains why u want chat with cuze u got not life
 
-Kingdomoftharks RlOTS: u passed your bed time
+[1:02AM] spritzermixer: although unlike quasimodo youre a tool and an uncultured piece of shit with no idea about what im on about
 
-rofologist: nope hes deffinatly 12
+[1:03AM] Kingdomoftharks: yah cuze i dont fking understand a word u r saying
 
-spritzermixer ~–~–~: Bruh how many old comebacks you gonna use
+[1:03AM] spritzermixer: as proved by your not being able to understand the reference i am giving you
 
-spritzermixer ~–~–~: maybe if this was 15 years ago you would be cool
+Then do you know how to read?
 
-rofologist: nah still got 2 hours left until 2 am
+[1:03AM] Kingdomoftharks: that what aim trying to say
 
-spritzermixer ~–~–~: but this is just sad
+[1:03AM] spritzermixer: or did they not teach you that in preschool yet
 
-spritzermixer ~–~–~: smh
+WAIT
 
-Kingdomoftharks RlOTS: stfu go to bed u fking scrub cunt
+YOURE TRYING TO SAY YOU CANT READ?
 
-spritzermixer ~–~–~: again with the same comeback?
+that explains alot
 
-rofologist: creative
+[1:04AM] Kingdomoftharks: yes your words
 
-spritzermixer ~–~–~: anything original in that t-rex brain or nah?
+[1:05AM] spritzermixer: well its nice that we are making headway into your issues as a illiterate
 
-rofologist: ill give it a 4 out of 9
+[1:05AM] Kingdomoftharks: i heard that pigs dont sleep untill 3am is that true
 
-spritzermixer ~–~–~: i mean judging by your current mood and typing ability id say no
+[1:05AM] spritzermixer: Iunno ask your mum? she oughta know
 
-Kingdomoftharks RlOTS: u dont fking make sence
+[1:06AM] Kingdomoftharks: see,  now dont undrestand 
 
-spritzermixer ~–~–~: And you dont fucking type english very well
+u
 
-spritzermixer ~–~–~: the t-rex had a brain the size of a peanut
+[1:06AM] spritzermixer: huh? english please?
 
-Kingdomoftharks RlOTS: yes its becuse i fked u r mum so hard
+[1:07AM] Kingdomoftharks: im from china so no english
 
-Kingdomoftharks RlOTS: thats why my hand is shakikng
+u there buddy
 
-spritzermixer ~–~–~: an easy way to judge the size of a t-rex brain would be look down at your dick
+[1:09AM] spritzermixer: Oh that explains alot, now i know why you are kept in the basement, You must have failed your first math test 
+and you were found to be a great dishonor to you family
 
-rofologist: ok first you dont say fucking fking
+Well thats your own fucking fault dont take it out on me :/
 
-spritzermixer ~–~–~: and thats the size of your brain
+So tell me
 
-spritzermixer ~–~–~: Youre welcome :)
+where are you right now
 
-Kingdomoftharks RlOTS: first u r nerd
+[1:10AM] Kingdomoftharks: yes thats what excatly happened
 
-spritzermixer ~–~–~: Wot
+im in sydeny
 
-Kingdomoftharks RlOTS: second dont be a smart as
+u?
 
-rofologist: *you *are
+[1:10AM] spritzermixer: i aint tellin, fuck off back to sydney and leave our cats alone ching
 
-rofologist: *arse
+Well no fuck off back to china
 
-spritzermixer ~–~–~: How am i a nerd? and how am i being a smartass
+even better
 
-Kingdomoftharks RlOTS: idk ask yourself
+[1:11AM] Kingdomoftharks: stfu go to bed and dont waste my time,
 
-spritzermixer ~–~–~: Do you have any dignity left after this?
+[1:11AM] spritzermixer: i dont need my homework done either 
 
-Kingdomoftharks RlOTS: probs yes with ur mamam
+i mean, why would i listen to you?
 
-Kingdomoftharks left the room.
+[1:12AM] Kingdomoftharks: im your dady
 
+[1:12AM] spritzermixer: come onnnn join us
 
+riiiight
+
+and im in the mexican drug cartel
+
+howdy :)
+
+[1:13AM] Kingdomoftharks: not even close to there
+
+[1:13AM] spritzermixer: bruh i never said you were
+
+i have a question
+
+how many dead hookers does it take to change a lightbulb?
+
+[1:14AM] Kingdomoftharks: im taallking about u 
+
+[1:14AM] spritzermixer: answer my question
+
+[1:14AM] Kingdomoftharks: u r mum and sister
+
+am i correct
+
+am i correct
+
+[1:15AM] spritzermixer: no youre not, my basements still dark i have six down there, maybe ill grab your mum and make it seven and see 
+if that fixes it
+
+c-c-c-c-c-combobreaker
+
+[1:17AM] Kingdomoftharks: What do you call a blonde with two brain cells?
+
+answer my question
+
+[1:18AM] spritzermixer: Kingdomoftharks?
+
+[1:18AM] Kingdomoftharks: see u dont know shit now
+
+You're so stupid that you had to call 411 to get the number for 911.
+
+LuL
+
+[1:19AM] spritzermixer: bro its 000 what are you on about
+
+[1:19AM] Kingdomoftharks: not here
+
+braind dead
+
+[1:19AM] spritzermixer: Dude, you live in sydney, Its 000
+
+what the fuck are you smoking
+
+[1:19AM] Kingdomoftharks: weed
+
+[1:19AM] spritzermixer: must be good shit
+
+[1:20AM] Kingdomoftharks: u want some?
+
+[1:20AM] spritzermixer: sure
+
+[1:20AM] Kingdomoftharks: yes
+
+3i can give u some
+i
+m planting it in my backyard
+
+u r freind removed me from his freinds list
+
+
+[1:22AM] spritzermixer: yes because talking to you kills his braincells
+
+[1:23AM] Kingdomoftharks: but he said he enjoyed it
+
+how can it kill his brain cells
+
+[1:23AM] spritzermixer: yes but youre still a cancer toting moron
+
+[1:23AM] Kingdomoftharks: now i can see the burn in you and your fat freind
+
+fking white people 
+
+[1:24AM] spritzermixer: fucking cat eating chings
+
+[1:24AM] Kingdomoftharks: im not a chines btw
+
+
+ahahhaha
+
+to be honest im from africa
 
 
 
